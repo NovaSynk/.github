@@ -6,7 +6,7 @@ Welcome to NovaLynk, where innovation meets practicality in the realm of artific
 
 ## Partner with Us
 
-We believe in forging strategic partnerships to drive mutual success. If you're interested in collaborating, investing, or leveraging our technologies for your business, we invite you to explore partnership opportunities. Reach out to us at partnerships@yourorganization.com.
+We believe in forging strategic partnerships to drive mutual success. If you're interested in collaborating, investing, or leveraging our technologies for your business, we invite you to explore partnership opportunities. Reach out to us at mishkatmustafid@gmail.com.
 
 ## Contact Us
 
